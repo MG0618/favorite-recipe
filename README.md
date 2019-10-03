@@ -19,3 +19,4 @@
 ## Directions
 1. In a large bowl, sift together 1 1/2 cups of the flour, 3 1/2 teaspoons baking powder, 1 teaspoon of salt and 1 tablespoon sugar. Make a well in the center and pour in 1 1/4 cups of the milk, 1 egg and 3 tablespoons of the melted butter; mix until smooth.
 2. Heat a lightly oiled griddle or frying pan over medium high heat. Pour or scoop the batter onto the griddle, using approximately 1/4 cup for each pancake. Brown on both sides and serve hot.
+\[Pancake\](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwinqrDSjIDlAhViU98KHSXyC-gQjRx6BAgBEAQ&url=https://foodalltime.com/how-to-make-classic-american-pancakes-recipe/&psig=AOvVaw1cnv9ep8SKI1qvfqJpFDdu&ust=1570192396876080)
